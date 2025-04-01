@@ -1,1 +1,0 @@
-# wyborymdowod.github.io
